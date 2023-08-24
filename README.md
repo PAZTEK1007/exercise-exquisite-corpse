@@ -16,7 +16,3 @@ mais sans chaussures, c'est compliqué
 il décida de ne plus se déplacer physiquement
 
 il ne se deplacera plus qu'en pensée
-
-
-
-PERFECT
